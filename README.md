@@ -1,1 +1,1 @@
-# ginga-cristiano-verifica-6nov2024
+# ginga-cristiano
